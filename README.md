@@ -1,2 +1,2 @@
 # BandaidsMegaCosmetics
-A large cosmetic pack for the MoreCompany Lethal Company Mod
+A large cosmetic pack by Bandaid Roo for the MoreCompany Lethal Company Mod by notnotnotswipez
